@@ -4,9 +4,9 @@
 
 📖 Learning [AI](https://www.udemy.com/course/artificial-intelligence-az), [Korean and French](https://www.duolingo.com/learn), and reading [Feel Good Productivity](https://feelgoodproductivity.com/) by Ali Abdaal
 
-🎮 Playing [The Legend of Zelda: Tears of the Kingdom](https://www.zelda.com/tears-of-the-kingdom/), and other games on [Switch](https://www.nintendo.com/store/games/#p=1&sort=df&f=corePlatforms&corePlatforms=Nintendo+Switch)
+🎮 Collecting [Pokémon TCG](https://tcg.pokemon.com/), and playing [Pokémon TCG Pocket](https://tcgpocket.pokemon.com/), [The Legend of Zelda: Tears of the Kingdom](https://www.zelda.com/tears-of-the-kingdom/), and other games on [Switch](https://www.nintendo.com/store/games/#p=1&sort=df&f=corePlatforms&corePlatforms=Nintendo+Switch)
 
-📺 Spending free time watching on YouTube and Netflix, sketching with Procreate, and listening to [SHINee](https://open.spotify.com/artist/2hRQKC0gqlZGPrmUKbcchR)
+📺 Spending free time watching on YouTube and Netflix, and listening to [SHINee](https://music.apple.com/ph/artist/shinee/433371033), [The Boyz](https://music.apple.com/ph/artist/the-boyz/1322012460), and other K/P-pop artists 
 
 ## Experience
 
